@@ -1,1 +1,1 @@
-Practise 10.
+Practice 10
